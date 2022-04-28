@@ -1,1 +1,5 @@
-# String-slice-1
+# String-slice
+
+
+video link
+https://bit.ly/3OFFn9T
